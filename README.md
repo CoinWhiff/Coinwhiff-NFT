@@ -1,1 +1,1 @@
-# CoinWhiff-NFT
+# Coinwhiff-NFT
